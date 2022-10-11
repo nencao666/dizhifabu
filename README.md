@@ -6,10 +6,9 @@
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
 ### :heart: :point_right: 【最新地址】 ：https://ncsex24.xyz
-    ### :heart: :point_right: 【最新地址】 ：https://ncsex25.xyz
-    ### :heart: :point_right: 【最新地址】 ：https://ncsex26.xyz
-    
+### :heart: :point_right: 【最新地址】 ：https://ncsex25.xyz
+### :heart: :point_right: 【最新地址】 ：https://ncsex26.xyz
+
 ### 地址发布：https://ncfb19.com
 
 #### :e-mail: __找回地址邮箱: nengcao@mail.com （以上地址无法访问请发送任意内容获取最新地址）__
-    
