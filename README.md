@@ -5,9 +5,9 @@
 ### :sunglasses:重要提醒:sunglasses:请收藏本页面，避免迷路！
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
-### :heart: :point_right: 【最新地址】 ：https://nckan65.xyz
-### :heart: :point_right: 【最新地址】 ：https://nckan66.xyz
-### :heart: :point_right: 【最新地址】 ：https://nckan67.xyz
+### :heart: :point_right: 【最新地址】 ：https://nckan68.xyz
+### :heart: :point_right: 【最新地址】 ：https://nckan69.xyz
+### :heart: :point_right: 【最新地址】 ：https://nckan70.xyz
 
 ### 地址发布：https://ncfb44.com
 
