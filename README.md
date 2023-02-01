@@ -9,6 +9,6 @@
 ### :heart: :point_right: 【最新地址】 ：https://nccao57.xyz
 ### :heart: :point_right: 【最新地址】 ：https://nccao58.xyz
 
-### 地址发布：https://ncfb55.com
+### 地址发布：https://ncfb60.com
 
 #### :e-mail: __找回地址邮箱: nengcao@mail.com （以上地址无法访问请发送任意内容获取最新地址）__
