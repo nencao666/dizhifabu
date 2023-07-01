@@ -5,10 +5,10 @@
 ### :sunglasses:重要提醒:sunglasses:请收藏本页面，避免迷路！
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
-### :heart: :point_right: 【最新地址】 ：https://ncmm187.xyz
-### :heart: :point_right: 【最新地址】 ：https://ncmm86.xyz
-### :heart: :point_right: 【最新地址】 ：https://ncmm141.xyz
+### :heart: :point_right: 【最新地址】 ：https://bbq655.xyz
+### :heart: :point_right: 【最新地址】 ：https://bbq922.xyz
+### :heart: :point_right: 【最新地址】 ：https://bbq622.xyz
 
-### 地址发布：https://ncfb78.com/
+### 地址发布：https://ncfb80.com
 
 #### :e-mail: __找回地址邮箱: nengcao@mail.com （以上地址无法访问请发送任意内容获取最新地址）__
