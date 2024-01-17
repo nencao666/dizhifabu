@@ -5,11 +5,11 @@
 ### :sunglasses:重要提醒:sunglasses:请收藏本页面，避免迷路！
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
-### :heart: :point_right: 【最新地址】 ：https://nc.mbti922lrb.xyz
-### :heart: :point_right: 【最新地址】 ：https://nc.mbti994ado.xyz
-### :heart: :point_right: 【最新地址】 ：https://nc.mbti811knc.xyz
-### :heart: :point_right: 【最新地址】 ：https://nc.mbti990nhy.xyz
+### :heart: :point_right: 【最新地址】 ：https://nc.mbti744ptk.xyz
+### :heart: :point_right: 【最新地址】 ：https://nc.mbti955ggh.xyz
+### :heart: :point_right: 【最新地址】 ：https://nc.mbti991ktf.xyz
+### :heart: :point_right: 【最新地址】 ：https://nc.mbti977qcf.xyz
 
-### 地址发布：https://ncfb104.com
+### 地址发布：https://ncfb106.com
 
 #### :e-mail: __找回地址邮箱: nengcao@mail.com （以上地址无法访问请发送任意内容获取最新地址）__
