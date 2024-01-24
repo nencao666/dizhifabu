@@ -7,8 +7,8 @@
 
 ### :heart: :point_right: 【最新地址】 ：https://nc.552y552.work
 ### :heart: :point_right: 【最新地址】 ：https://nc.665g665.xyz
-### :heart: :point_right: 【最新地址】 ：https://nc.661g661.xyz
-### :heart: :point_right: 【最新地址】 ：https://nc.229d229.work
+### :heart: :point_right: 【最新地址】 ：https://nc.882yy882.com
+### :heart: :point_right: 【最新地址】 ：https://nc.666e666.xyz
 
 ### 地址发布：https://ncfb106.com
 
