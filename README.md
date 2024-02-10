@@ -5,10 +5,10 @@
 ### :sunglasses:重要提醒:sunglasses:请收藏本页面，避免迷路！
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
-### :heart: :point_right: 【最新地址】 ：https://nc.551y551.xyz
-### :heart: :point_right: 【最新地址】 ：https://nc.111g111.work
-### :heart: :point_right: 【最新地址】 ：https://nc.888b888.xyz
-### :heart: :point_right: 【最新地址】 ：https://nc.116b116.xyz
+### :heart: :point_right: 【最新地址】 ：https://nc.665v665.xyz
+### :heart: :point_right: 【最新地址】 ：https://nc.888q888.xyz
+### :heart: :point_right: 【最新地址】 ：https://nc.883h883.work
+### :heart: :point_right: 【最新地址】 ：https://nc.887s887.xyz
 
 ### 地址发布：https://ncfb112.com
 
