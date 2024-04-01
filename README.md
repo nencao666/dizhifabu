@@ -8,7 +8,7 @@
 ### :heart: :point_right: 【最新地址】 ：https://nc7wsfp6.xyz
 ### :heart: :point_right: 【最新地址】 ：https://nchnn6vn.link
 ### :heart: :point_right: 【最新地址】 ：https://nce2fwmm.xyz
-### :heart: :point_right: 【最新地址】 ：https://ncydbca4.link
+### :heart: :point_right: 【最新地址】 ：https://nckcg6st.xyz
 
 ### 地址发布：https://ncfb118.com
 ### 稳如老狗线路 : https://137.175.83.242:30087/
