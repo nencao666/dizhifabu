@@ -5,13 +5,13 @@
 ### :sunglasses:重要提醒:sunglasses:请收藏本页面，避免迷路！
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
-### :heart: :point_right: 【最新地址】 ：https://nc.nck7e4bp.xyz
-### :heart: :point_right: 【最新地址】 ：https://nc.nckc4q6v.xyz
-### :heart: :point_right: 【最新地址】 ：https://nc.nckgwwwv.xyz
-### :heart: :point_right: 【最新地址】 ：https://nc.nckkbh72.xyz
-### :heart: :point_right: 【最新地址】 ：https://nc.nck4x442.xyz
+### :heart: :point_right: 【最新地址】 ：https://nc.nckwmrjq.xyz
+### :heart: :point_right: 【最新地址】 ：https://nc.nckdzd6c.xyz
+### :heart: :point_right: 【最新地址】 ：https://nc.nckezhmk.xyz
+### :heart: :point_right: 【最新地址】 ：https://nc.nckt4sme.xyz
+### :heart: :point_right: 【最新地址】 ：https://nc.nccn1n2.com
 
-### 地址发布：https://ncfb138.com
+### 地址发布：https://ncfb140.com
 ### 稳如老狗线路 : https://137.175.83.242:30087/
 
 #### :e-mail: __找回地址邮箱: nengcao@mail.com （以上地址无法访问请发送任意内容获取最新地址）__
