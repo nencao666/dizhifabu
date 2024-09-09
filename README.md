@@ -5,11 +5,11 @@
 ### :sunglasses:重要提醒:sunglasses:请收藏本页面，避免迷路！
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
-### :heart: :point_right: 【最新地址】 ：https://nc.nc69n3x9b.xyz:23569
-### :heart: :point_right: 【最新地址】 ：https://nc.nc6979q8k.xyz:23569
-### :heart: :point_right: 【最新地址】 ：https://nc.nc696wj5u.com:23569
-### :heart: :point_right: 【最新地址】 ：https://nc.nc69wjmfb.xyz:23569
-### :heart: :point_right: 【最新地址】 ：https://nc.nc695t8d3.xyz:23569
+### :heart: :point_right: 【最新地址】 ：https://nc.nc698kn4e.com:23569
+### :heart: :point_right: 【最新地址】 ：https://nc.nc69dqzh8.xyz:23569
+### :heart: :point_right: 【最新地址】 ：https://nc.nc69346mc.xyz:23569
+### :heart: :point_right: 【最新地址】 ：https://nc.nc69twguu.xyz:23569
+### :heart: :point_right: 【最新地址】 ：https://nc.nc69ngypk.xyz:23569
 
 ### 地址发布：https://ncfb148.com
 ### 稳如老狗线路 : https://23.224.103.219:30089/
