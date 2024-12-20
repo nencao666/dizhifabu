@@ -2,7 +2,7 @@
 
 ## 請不要使用国产浏览器，推荐使用谷歌chrome 浏览器，<a href = "https://www.google.cn/chrome/">请点击这里下载chrome手机浏览器</a>
 
-### :sunglasses:重要提醒:sunglasses:请收藏本页面，避免迷路！
+### :sunglasses:重要提醒:sunglasses:请收藏本页面，避免迷路！！
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
 ### :heart: :point_right: 【最新地址】 ：https://nc.nc6954g6zeu3.xyz:23569
