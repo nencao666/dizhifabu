@@ -9,7 +9,7 @@
 ### :heart: :point_right: 【最新地址】 ：https://nc.nc691hm66ddw.xyz:23569
 ### :heart: :point_right: 【最新地址】 ：https://nc.nc69p9mt620p.xyz:23569
 
-### 地址发布：https://ncfb169.com
+### 地址发布：https://ncfb171.com
 ### 稳如老狗线路 : https://23.224.103.219:30089/
 
 #### :e-mail: __找回地址邮箱: nengcao@mail.com （以上地址无法访问请发送任意内容获取最新地址）__
