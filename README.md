@@ -5,9 +5,9 @@
 ### :sunglasses:重要提醒:sunglasses:请收藏本页面，避免迷路！
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
-### :heart: :point_right: 【最新地址】 ：https://nc.nckan62.work:23569
-### :heart: :point_right: 【最新地址】 ：https://nc.nckan63.work:23569
-### :heart: :point_right: 【最新地址】 ：https://nc.nckan64.work:23569
+### :heart: :point_right: 【最新地址】 ：https://nc.nckan65.work:23569
+### :heart: :point_right: 【最新地址】 ：https://nc.nckan66.work:23569
+### :heart: :point_right: 【最新地址】 ：https://nc.nckan67.work:23569
 
 ### 地址发布：https://ncfb191.com
 ### 稳如老狗线路 : https://23.224.103.219:30089/
