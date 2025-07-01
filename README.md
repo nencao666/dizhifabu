@@ -9,7 +9,7 @@
 ### :heart: :point_right: 【最新地址】 ：https://nc.nckp35.work:23569
 ### :heart: :point_right: 【最新地址】 ：https://nc.nckp36.work:23569
 
-### 地址发布：https://ncfb212.com
+### 地址发布：https://ncfb213.com
 ### 稳如老狗线路 :  https://104.233.143.11:30094/
 
 #### :e-mail: __找回地址邮箱: nengcao@mail.com （以上地址无法访问请发送任意内容获取最新地址）__
