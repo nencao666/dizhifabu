@@ -5,9 +5,9 @@
 ### :sunglasses:重要提醒:sunglasses:请收藏本页面，避免迷路！
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
-### :heart: :point_right: 【最新地址】 ：https://nc.ai31.casa:23569
-### :heart: :point_right: 【最新地址】 ：https://nc.ai32.casa:23569
-### :heart: :point_right: 【最新地址】 ：https://nc.ai33.casa:23569
+### :heart: :point_right: 【最新地址】 ：https://nc.ai34.casa:23569
+### :heart: :point_right: 【最新地址】 ：https://nc.ai35.casa:23569
+### :heart: :point_right: 【最新地址】 ：https://nc.ai36.casa:23569
 
 ### 地址发布：https://ncfb236.com
 ### 稳如老狗线路 :  https://104.233.143.11:30094/
